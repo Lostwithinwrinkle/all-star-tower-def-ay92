@@ -1,4 +1,4 @@
-
+all star tower defense vip Scripts is the best all star tower defense Script, featuring no clip and esp. Safe and powerful for all your needs.
 
 
 
